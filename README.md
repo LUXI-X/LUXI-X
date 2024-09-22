@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with [saynotes](https://luxi-x.github.io/saynotes/)
 
-- 👨‍💻 All of my projects are available at [https://portfolio-luxi-x-tejpal-23.vercel.app/?fbclid=PAZXh0bgNhZW0CMTEAAaajXzgZzdVhaEVrnyuCHAzgoIeJETF-dLZu_PBgImMtDr4Cfgf5pe8xQzQ_aem_vws4Vhb0O9Xay7lIxv2oiA](https://portfolio-luxi-x-tejpal-23.vercel.app/?fbclid=PAZXh0bgNhZW0CMTEAAaajXzgZzdVhaEVrnyuCHAzgoIeJETF-dLZu_PBgImMtDr4Cfgf5pe8xQzQ_aem_vws4Vhb0O9Xay7lIxv2oiA)
+- 👨‍💻 All of my projects are available at [https://portfolio-luxi-x-tejpal-23.vercel.app/?](https://portfolio-luxi-x-tejpal-23.vercel.app/?)
 
 - 📝 I regularly write articles on [https://tsclchannel12.blogspot.com/](https://tsclchannel12.blogspot.com/)
 
