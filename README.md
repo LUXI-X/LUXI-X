@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **tejpalsinghroyalbanna12@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1hl7SppZNkzwrBPOyYhTUqz1qfHAYkuWJ/view?usp=sharing](https://drive.google.com/file/d/1hl7SppZNkzwrBPOyYhTUqz1qfHAYkuWJ/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1liqLLzRvRni2tx-eQH_QpR_EKdHA6PuC/view](https://drive.google.com/file/d/1liqLLzRvRni2tx-eQH_QpR_EKdHA6PuC/view)
 
 - ⚡ Fun fact **https://www.youtube.com/@tsclchannel12**
 
